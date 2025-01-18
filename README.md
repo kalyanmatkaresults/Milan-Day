@@ -23,7 +23,7 @@ Dpboss Charts: Accurate charts to strategize your gameplay.
 Expert Tips: Win more with predictions from seasoned players.
 Secure Platform: A safe space for all your Matka gaming needs.
 Dpboss Charts and Kalyan Satta Matka
-Dpboss charts, <a hrf="https://jagdambasattamatka.com/">Time Bazar</a> and Kalyan Satta Matka are integral to the Madhur Matka experience. Use them to track past results, analyze trends, and make calculated decisions. Our platform ensures you have access to:
+Dpboss charts, <a href="https://jagdambasattamatka.com/">Time Bazar</a> and Kalyan Satta Matka are integral to the Madhur Matka experience. Use them to track past results, analyze trends, and make calculated decisions. Our platform ensures you have access to:
 
 Detailed weekly and daily charts.
 Historical data for better planning.
